@@ -1,3 +1,2 @@
 # harikri
-hari repo
-azjbaBXA X A XXa 
+sx ssx scscsc sd cds 
